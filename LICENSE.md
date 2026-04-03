@@ -1,4 +1,4 @@
-
+vip Scripts for baddies - god and esp is the ultimate solution for baddies players! Our scripts provide god and esp, ensuring you dominate every match. No bans, no lags—just pure gaming excellence. Join thousands of satisfied users and elevate your baddies experience today!
 
 
 ---
